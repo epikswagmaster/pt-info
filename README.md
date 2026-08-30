@@ -10,6 +10,8 @@ i would rather not speak to you if you complain about afk people. this is an ava
 
 if youre under 16 or over 21, please dont try to be friends with me. i am 18. c+h or a simple compliment is perfectly okay regardless of age!
 
+one last DNI before the serious stuff, I would rather not talk to people who "larp" being Scandinavian/danish or are huge "weaboos" of our culture. I want to meet people who are ACTUALLY apart of my culture.
+
 <p align="center"> ok now we getting serious
 
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of ALL ships including minor x adult, incest, or animal x human. it is NOT okay. pro-shipping is NOT anti-harassment, and people expressing discomfort from proshippers, is NOT harassment.
