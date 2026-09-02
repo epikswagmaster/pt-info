@@ -11,3 +11,5 @@ if youre under 16 or over 21, please dont try to be friends with me. i am 18. c+
 <p align="center"> ok now we getting serious
 
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of ALL ships including minor x adult, incest, or animal x human. it is NOT okay. pro-shipping is NOT anti-harassment, and people expressing discomfort from proshippers, is NOT harassment.
+
+last thing, NEVER assume /kiss action has ANY other meaning behind it than the person liking your outfit. please treat this like a game, because it is.
