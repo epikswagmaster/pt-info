@@ -18,3 +18,5 @@ I'm very big on not wanting my skins copied but I'm also aware that most people 
 <p align="center"> less important
 
 those who make their personalities "puppygirls", "catboys," "puppyboys" etc, usually make me uncomfortable. especially if you're just not an animal coded person, (which most people identifying with this aren't IMO) it feels even weirder for me to use the terms you want. (like the nickname Kitty or the pronouns pup/pup self) please leave it out of our interactions.
+
+i didn't mean to make this so long, but all of these boundaries are based off of true and unpleasant interactions I've had
