@@ -8,7 +8,7 @@ if i try to engage in a conversation with you and you have a rude/dry response y
 
 if youre under 16 or over 21, please dont try to be friends with me, i am 18. c+h or a simple compliment is perfectly okay regardless of age!
 
-i know some shy people will sit next to me with a cosplay from the same fandom, I am not always going to see it, so please don't be afraid to whisper me. <3
+i know some shy people will sit next near me with a cosplay from the same fandom, I am not always going to see it, so please don't be afraid to whisper/c+h <3
 
 <p align="center"> ok now we getting serious
 
