@@ -11,7 +11,7 @@ if youre under 16 or over 21, please dont try to be friends with me, i am 18. c+
 i know some shy people will sit near me with a cosplay from the same fandom, I am not always going to see it! and due to what i first stated above, I also am not always going to respond to it! so please don't be afraid to whisper/c+h if you want me to. I'm no mind reader!
 
 for those who haven't played transformice and want to view my skin in a weird/racist way, I am cosplaying as this. <img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/85b57ec5-f308-4559-bff6-7e127f8a2f2b" />
-  also, almost my entire family is native or indian, I ask them before creating anything similar.
+  also, almost my entire family is native or indian, I ask them before creating certain things. I personally care about THEIR feelings more than someone over the internet's so if you still don't like it, block/hide.
 
 
 <p align="center"> ok now we getting serious
