@@ -8,6 +8,8 @@ if i try to engage in a conversation with you and you have a rude/dry response y
 
 if youre under 16 or over 21, please dont try to be friends with me, i am 18. c+h or a simple compliment is perfectly okay regardless of age!
 
+i know some shy people will sit next to me with a cosplay from the same fandom, I am not always going to see it, so please don't be afraid to whisper me. <3
+
 <p align="center"> ok now we getting serious
 
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of ALL ships including minor x adult, incest, or animal x human. it is not okay.
