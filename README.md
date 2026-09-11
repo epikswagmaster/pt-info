@@ -26,6 +26,6 @@ One of my vampire skin ideas became a somewhat common "trend", which prompted me
 
 those who make their personalities "puppygirls", "catboys," "puppyboys" etc, usually make me uncomfortable. especially if you're just not an animal coded person, (which most people identifying with this aren't IMO) it feels even weirder for me to use the terms you want. (like the nickname Kitty or the pronouns pup/pup self) please leave it out of our interactions.
 
-this may seem rude at first, but I would rather not interact with those who claim to be "uncomfy" with in-game interactions. it shows me that you take this game very serious, or do not have regular experiences with real life. i have my own huge life outside of this game,and i can not spend my time catering to you and making sure i dont press specific buttons.
+this may seem rude at first, but I would rather not interact with those who claim to be "uncomfy" with in-game interactions. it shows me that you take this game very serious, or do not have regular experiences with real life. i have my own huge life outside of this game,and i can not spend my time catering to you and making sure i dont press specific buttons as if this is real life.
 
 i didn't mean to make this so long, but all of these boundaries are based off of true and unpleasant interactions I've had. I also won't be promoting this page, if someone truly cared for me/wanted to be friends, they'd find this on their own or look for it even. thanks for reading if you're one of them. <3
