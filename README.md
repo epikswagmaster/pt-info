@@ -18,7 +18,9 @@ for those who haven't played transformice and want to view my skin in a weird/ra
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of ALL ships including minor x adult, incest, or animal x human. it is not okay.
 
 
-I'm very big on not wanting my skins copied but I'm also aware that most people subtly copy parts of other people's outfits anyway. if you're one of these people who are going to do it anyways, all I ask is that you please do not take more than one thing from my skin. (e.g if you want the color palette, use it! but make your OWN skin and character with it.)
+I'm very big on not wanting my skins copied but I'm also aware that most people subtly copy parts of other people's outfits anyway. if you're one of these people who are going to do it anyways, all I ask is that you please do not take more than one thing from my skin, for example the hairstyle (if I made it myself using multiple items).
+if I feel copied at any capacity I may permanently hide you to protect my creative peace and prevent you from potentially copying my other skins.
+One of my skin ideas became a somewhat common "trend", which prompted me to leave ponytowns for a bit. please ask before using my ideas!
 
 <p align="center"> less important
 
