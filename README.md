@@ -1,31 +1,28 @@
 # pt-info
 
-im a shy person! no guaranteed response
+im a shy person so there is no guaranteed response, im also a very private person and not looking to share much about myself.
 
-im not turkish! i only know some words/sentences from friends as my ponytown friends are turkish
+i am not turkish, but my friends are. i only know a few phrases.
+even if you also speak danish (my language), its easier to communicate with others in english for me since many danes I meet are not fluent. Americans enjoy pretending to be full European/speak another language , which makes it hard for me to connect with real danes/europeans.
 
-if i try to engage in a conversation with you and you have a rude/dry response you will be instantly and permanently hidden
+if i try to engage in a conversation with you and you have a rude/dry response you will be instantly and permanently hidden, I have no specific DNI list, I PERMANENTLY hide anyone that upsets me in the slightest. contact me elsewhere if you are hidden and would like me to discuss your behavior / be unhidden, because I know mistakes and misunderstandings happen.
 
-if youre under 16 or over 21, please dont try to be friends with me, i am 18. c+h or a simple compliment is perfectly okay regardless of age!
+if youre under 16 or over 21, please dont try to be friends with me, i am 18. c+h or small talk is always perfectly fine.
 
-i know some shy people will sit near me with a cosplay from the same fandom, I am not always going to see it! and due to what i first stated above, I also am not always going to respond to it! so please don't be afraid to whisper/c+h if you want me to. I'm no mind reader!
-
-for those who haven't played transformice and want to view my skin in a weird/racist way, I am cosplaying as this. <img width="300" height="321" alt="image" src="https://github.com/user-attachments/assets/85b57ec5-f308-4559-bff6-7e127f8a2f2b" />
+James Cameron's AVATAR fans, PLEASE interact! everyone assumes the movie is boring and wont pay attention to a LICK of the amazing storyline. if you like avatar, youre already on a higher level of intelligence for trying, and being able to enjoy more dystopian things. I have huge respect for other avatar fans.
 
 
 <p align="center"> ok now we getting serious
 
-i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of ALL ships including minor x adult, incest, or animal x human. it is not okay.
+i may sit at / around what is called the "Proship tree", i am NOT apart of this group. pro-shipping is the validation of all ships including minor x adult, incest, or animal x human. 
+ONLY interact with me if you are anti-harassment, WITHOUT identifying with the "Proship" label. you can be anti-harassment without being a pro-shipper (aka a minor x adult ETC. supporter, in very simple terms.)
 
 
-I'm very big on not wanting my skins copied but I'm also aware that most people subtly copy parts of other people's outfits anyway. if you're one of these people who are going to do it anyways, all I ask is that you please do not take more than one thing from my skin, for example the hairstyle (if I made it myself using multiple items).
+I'm very big on not wanting my skins copied but I'm also aware that most people subtly copy parts of other people's skin anyway.
 if I feel copied at any capacity I may permanently hide you to protect my creative peace, and prevent you from potentially copying my other skins.
-One of my vampire skin ideas became a somewhat common "trend", which prompted me to leave ponytowns for a bit. please ask before using my ideas!
+
+unfortunately I do not allow those who I believe copied my skin to contact me and request to be unhidden, this is a permanent blacklist because you are stealing a character + design that is personal to me.
 
 <p align="center"> less important
 
-those who make their personalities "puppygirls", "catboys," "puppyboys" etc, usually make me uncomfortable. especially if you're just not an animal coded person, (which most people identifying with this aren't IMO) it feels even weirder for me to use the terms you want. (like the nickname Kitty or the pronouns pup/pup self) please leave it out of our interactions.
-
-this may seem rude at first, but I would rather not interact with those who claim to be "uncomfy" with in-game interactions. it shows me that you take this game very serious, or do not have regular experiences with real life. i have my own huge life outside of this game,and i can not spend my time catering to you and making sure i dont press specific buttons as if this is real life, on a game dedicated to interacting.
-
-i didn't mean to make this so long, but all of these boundaries are based off of true and unpleasant interactions I've had. I also won't be promoting this page, if someone truly cared for me/wanted to be friends, they'd find this on their own or look for it even. thanks for reading if you're one of them. <3
+those who make their personalities "puppygirls", "catboys," "puppyboys" etc, usually make me uncomfortable. most people identifying with this are not animal-coded at all IMO, which makes me feel even more weird using the terms you want (like the nickname kitty, or the pronouns pup/pupself.) it's not that I dont want you to interact with me, but please leave those things out of our interactions. it is inherently uncomfortable for anyone who isn't interested in it. please trust me on this.
