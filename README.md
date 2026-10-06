@@ -6,7 +6,7 @@ i am not turkish, but my friends are. i only know a few phrases, its best to onl
 
 I have no specific DNI list, I PERMANENTLY hide anyone that upsets me in the slightest. I always quickly disengage from any online arguments.
 
-if youre under 16 please dont try to be friends with me, i am 18. ages 21+ IWEC, I still do not see myself as an adult and much older folks wanting to be close with me still feels inappropriate.
+if youre under 16 please dont try to be friends with me. ages 21+ IWEC, I still do not see myself as an adult and much older folks wanting to be close with me still feels inappropriate.
 
 James Cameron's AVATAR fans, interact!
 
