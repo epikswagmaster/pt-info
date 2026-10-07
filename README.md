@@ -1,16 +1,18 @@
 # pt-info
 
-im a shy person so there is no guaranteed response, im also a very private person and not looking to share much about myself.
+im a shy person so there is no guaranteed response, im also a private person and not looking to share much about myself.
 
 i am not turkish, but my friends are. i only know a few phrases, its best to only speak to me in english or dansk.
 
-I have no specific DNI list, I PERMANENTLY hide anyone that upsets me in the slightest. I always quickly disengage from any online arguments.
+I have no specific DNI list, I PERMANENTLY hide anyone that upsets me in the slightest. I always quickly disengage from any online arguments as its unlike me.
 
-if youre under 16 please dont try to be friends with me. ages 21+ IWEC, I still do not see myself as an adult and much older folks wanting to be close with me still feels inappropriate.
+my ponytown friends are aged 16-21! if youre under 16 please dont try to be friends with me. ages 21+ IWEC!!
 
-James Cameron's AVATAR fans, interact!
+watch James Cameron's avatar movies.
 
 
 <p align="center"> ok now we getting serious
 
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group or any of the dark/comshipping stuff. it makes me extremely uncomfortable.
+
+im not interested in "dating" over ponytown and find it a little creepy how some people are attracted to my vampire skin. if you only want to be friends with me because of that skin, you are not a friend. please don't use terms or compliments like "sexy daddy" especially if I dont know you at all. i cant believe this has to be said.
