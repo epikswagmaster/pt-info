@@ -17,4 +17,4 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
   
 people sit afk often to promote their pages, art, or skins, like me. there is truly not much else to do on ponytown. if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, we might not be a great match.
 
-alot of vampire "identifiers" often make it a challenge/something to compete against me with? which is weird. I do not identify as one, I was simply born one. it's fine to have the same aesthetic as me, I just dont get the weird/rude rhetoric.
+alot of vampire "identifiers" often make it a challenge/something to compete against me with? which is weird. I do not identify as one, I was simply born one. it's fine to have the same aesthetic as me, I just dont get the weird/rude rhetoric or jealousy surrounding it. we can all be our own thing. 😭 
