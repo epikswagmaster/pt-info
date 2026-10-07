@@ -15,4 +15,4 @@ watch James Cameron's avatar movies.
 
 i may sit at / around what is called the "Proship tree", i am NOT apart of this group or any of the dark/comshipping stuff. it makes me extremely uncomfortable.
 
-im not interested in "dating" over ponytown and find it a little creepy how some people are attracted to my vampire skin. if you only want to be friends with me because of that skin, you are not a friend. please don't use terms or compliments like "sexy daddy" especially if I dont know you at all. i cant believe this has to be said.
+im not interested in "dating" over ponytown and find it a little creepy how some people are attracted to my vampire skin. please don't use terms or compliments like "sexy daddy" especially if I dont know you at all. on top of this, you literally don't know who is behind the screen. I don't want to be sexually assaulted by MINORS in my comfort game.
