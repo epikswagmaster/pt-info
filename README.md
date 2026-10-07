@@ -4,9 +4,9 @@ im a shy person so there is no guaranteed response, im also a private person and
 
 i am not turkish, but my ponytown friends are. i only know a few phrases.
 
-I have no specific DNI list, I permanently hide anyone that upsets me in the slightest. anyone who I feel copied my skin is permanently blocked aswell.
+I have no specific DNI list, I permanently hide anyone that upsets me in the slightest. 
 
-my ponytown friends are aged 16-21! anyone younger or older than this is much more prone to making me uncomfortable.
+my pt friends are aged 16-21! anyone younger or older than this is much more prone to making me uncomfortable.
 
 
 <p align="center"> ok now we getting serious
