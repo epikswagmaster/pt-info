@@ -17,4 +17,5 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
   
 people sit afk often to promote their pages, art, or skins, like me. there is truly not much else to do on ponytown. if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, we might not be a great match.
 
-me not listing every mental disorder in the book on my page doesn't mean they don't exist for me, please try to be patient with me and my responses.
+me not listing every mental disorder in the book on my page doesn't mean they don't exist for me, please try to be patient with me and my responses. 
+i dislike how so many of you claim very complex disorders with no prior diagnosis.
