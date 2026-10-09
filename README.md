@@ -20,6 +20,7 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
   no response does not mean i am ignoring u, i am offtab or busy irl and will respond when i can.
 
   i will c+h people who allow it, i dont like my pony sitting alone so often (because my few friends are a small amount with very different timezones.)
-  i feel like everyone with c+h enc just expects people to come to them, that almost never happens. if u wanna sit with a pony who's open to it, sit with them like me!
+  i feel like everyone with c+h enc just expects people to come to them, that almost never happens. 
+normalize going to sit with people you think are cool rather than always expecting them to float towards u, and feeling alone when it doesn't happen!
 
 yes i do like werewolves
