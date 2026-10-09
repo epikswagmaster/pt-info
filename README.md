@@ -1,6 +1,6 @@
 # pt-info
 
-im a shy person so there is no guaranteed response, also a private person and not looking to share much about myself that includes my gender identity, sexuality, city, personal habits etc.
+im a shy person so there is no guaranteed response, also a private person and not looking to share much about myself that includes my gender identity, sexuality, city/state, mental disorders etc.
 
 i am not turkish, but my pt friends are. i only know a few phrases.
 
