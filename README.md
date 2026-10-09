@@ -1,8 +1,8 @@
 # pt-info
 
-im a shy person so there is no guaranteed response, im also a private person and not looking to share much about myself.
+im a shy person so there is no guaranteed response, also a private person and not looking to share much about myself that includes my exact gender, sexuality, current living area, etc.
 
-i am not turkish, but my ponytown friends are. i only know a few phrases.
+i am not turkish, but my pt friends are. i only know a few phrases.
 
 I have no specific DNI list, I permanently hide anyone that upsets me in the slightest. i do however make it clear who i might block if you keep readin.
 
@@ -15,12 +15,11 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
 
 <p align="center"> BYF
   
-  if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, we might not be a great match.
+  if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, afk or make skins, we might not be a great match.
 
-  no response does not mean i am ignoring u, i am offtab or busy irl and will respond when i can.
+  no response does not mean i am ignoring u, i am offtab or busy irl and will respond when i can. I leave PT running quite often so people can see my skins and art.
 
   i will c+h people who allow it, i dont like my pony sitting alone so often (because my few friends are a small amount with very different timezones.)
-  i feel like everyone with c+h enc just expects people to come to them, that almost never happens. 
-normalize going to sit with people you think are cool rather than always expecting them to float towards u and feeling alone when it doesn't happen!
+
 
 yes i do like werewolves
