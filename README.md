@@ -21,8 +21,8 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
 
   i will c+h people who allow it, i dont like my pony sitting alone so often (because my few friends are a small amount with very different timezones.)
 
-ANY fandom can interact with me, but I will NOT play/watch the following:
-dandys world or poppy playtime
+**ANY fandom can interact with me, but I will NOT play/watch the following:**
+dandys world, poppy playtime,
 lesbian space princess
 
 yes i do like werewolves
