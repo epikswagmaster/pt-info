@@ -17,7 +17,7 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
   
   if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, afk or make skins, we might not be a great match.
 
-  no response does not mean i am ignoring u, i am offtab or busy irl and will respond when i can. I leave PT running quite often so people can see my skins and art.
+  no response does not mean i am ignoring u, i am offtab or busy irl and will respond when i can. I leave PT running quite often so people can see my art.
 
   i will c+h people who allow it, i dont like my pony sitting alone so often (because my few friends are a small amount with very different timezones.)
 
