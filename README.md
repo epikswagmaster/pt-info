@@ -1,6 +1,6 @@
 # pt-info
 
-im a shy person, i rarely speak or interact first, I wont just come up to you if you're interested, let alone read your mind.
+im a shy person, i rarely speak or interact first. I wont just come up to you if you're interested, that's what YOU'RE supposed to do..
 I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
 
 i am not turkish, but my pt friends are. i only know a few phrases.
