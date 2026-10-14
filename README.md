@@ -1,7 +1,7 @@
 # pt-info
 
-im a shy person, i rarely speak or interact first, you're going to have to get used to coming up to me until I'm comfortable.
-also, private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
+im a shy person, i rarely speak or interact first, I'm not going to just come up to you if you're interested, let alone read your mind.
+I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
 
 i am not turkish, but my pt friends are. i only know a few phrases.
 
