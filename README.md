@@ -25,4 +25,6 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
 dandys world, poppy playtime,
 lesbian space princess
 
+I dislike when peoplee think they're right just because they're cool or something. no, just because you're a woke furry artist with they/it prns or 10k following doesn't mean you can disrespect different opinions. it doesnt mean you can call people names that don't even match them because of something different they think. it doesn't mean you can add a question mark to the end of your argument and it automatically makes you right. and it doesn't mean you're always the victim. own up to your behavior.
+
 yes i do like werewolves
