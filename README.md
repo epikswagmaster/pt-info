@@ -29,7 +29,7 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
 dandys world, poppy playtime,
 lesbian space princess
 
-this last half might seem rude but to protect myself, I dislike when people think they're right just because they're "woke" etc. just because you're a furry artist with they/it prns or 10k following doesn't mean you can disrespect others who think differently and still be in the right. this means you're far from awake.
+this last half might seem rude but to protect myself, I dislike when people think they're right just because they're "woke" etc. just because you're a furry artist with they/it prns or 10k following doesn't mean I will agree with you, most of you feel holier than thou anyways for being a "gay oppressed furry" or whatever which I think is stupid, this shouldn't erase your respect towards people.
 
 <p align="Center"> interests
 
