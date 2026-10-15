@@ -6,7 +6,7 @@ i play alot during halloween / winter seasons and often disappear during summer 
 i reccommend newer players to interact, some others are purposefully awkward/rude to newer players
 
 im a shy person, i rarely speak or interact first. don't expect me or other people to just come up to you like a magnet, make an effort.
-I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
+I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc. i guess I'm saying make an effort but don't dig too deep
 
 i am not turkish, but my pt friends are. i only know a few phrases. 
 
