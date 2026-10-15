@@ -3,6 +3,8 @@
 im usually offtab and whisper to interact! (w2i)
 i play alot during halloween / winter seasons and often disappear during summer (sometimes im offline for years) dont forget to follow/add me somewhere :']
 
+i reccommend newer players to interact with me, others are purposefully awkward/rude to newer players and they might even bully you in their own unique way by taking advantage of your knowledge about the game.
+
 im a shy person, i rarely speak or interact first. don't expect me or other people to just come up to you like a magnet, make an effort.
 I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
 
