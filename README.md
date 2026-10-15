@@ -29,12 +29,9 @@ i may sit at / around what is called the "Proship tree", i am NOT apart of this 
 dandys world, poppy playtime,
 lesbian space princess
 
-this last half might seem rude but to protect myself, I dislike when people think they're right just because they're "woke" etc. just because you're a furry artist with they/it prns or 10k following doesn't mean I will agree with you, most of you feel holier than thou anyways for being a "gay oppressed furry" or whatever which I think is stupid, this shouldn't erase your respect towards people.
-
 <p align="Center"> interests
 
 - AVATAR (james cameron) especially fire and ash. 
-(yes i also assumed it would be boring too until i just gave it a damn chance.)
 if you like titanic or the abyss, that was also made by James Cameron.
 - character design/animal people, warrior cats, animal jam, transformice, horses, (i ride mine every now and then) opossums, mice and bats, ghost eyes (very niche webcomic), and creatures of sonaria (the most well-made game on Roblox, please try it if your devices can handle it LMAO)
 - MUSIC especially old rock music, some bands I like are KMFDM, and one, linkin park, limp bizkit, stone temple pilots, chevelle, Alice in chains, highly suspect, guns n roses, megadeth/metallica, motley crue (I know they're bad people but this band was a huge part of my life lmao), miss construction, caustic, and the obvious nirvana. other bands are pixies, massive attack, portishead and radiohead.
