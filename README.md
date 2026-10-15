@@ -3,7 +3,7 @@
 im a shy person, i rarely speak or interact first. don't expect me or other people to just come up to you like a magnet, make an effort.
 I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
 
-i am not turkish, but my pt friends are. i only know a few phrases.
+i am not turkish, but my pt friends are. i only know a few phrases. any türks that know at least a little english are welcome to talk to me and i will try my best to accommodate :]
 
 
 my pt friends are aged 16-21! anyone younger or older than this is much more prone to making me uncomfortable.
