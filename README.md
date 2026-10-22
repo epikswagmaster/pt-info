@@ -1,27 +1,22 @@
 # pt-info
 
 im usually offtab and whisper to interact! (w2i)
-i play alot during halloween / winter seasons and often disappear during summer (sometimes im offline for years) dont forget to follow/add me somewhere :']
+i play alot during halloween / winter seasons and often disappear during summer (sometimes im offline for years) :']
 
-im a shy person, i rarely speak or interact first besides sometimes sitting with ppl.
-I'm also a private person and not looking to share much about myself. that includes my gender identity, sexuality, mental disorders etc.
+im a shy person, i rarely speak or interact first besides sometimes sitting with ppl
 
-i am not turkish, but my pt friends are. i only know a few phrases. 
+i am not turkish, but my pt friends are. i only know a few phrases
 
-my pt friends are aged 16-21! below/above this age range I will not willingly interact with (ur still cool dont worry)
+my pt friends are aged 16-21! below/above this age range I will not willingly interact with
 
 
 <p align="center"> more srs
 
-i may sit at / around what is called the "Proship tree", i am NOT apart of this group or any of the dark/comshipping stuff. it makes me extremely uncomfortable. i also will not talk to people with their sexual interests listed on their pages, that's weird and should be private.
+Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
 <p align="center"> BYF
   
-  if you expect me to be active and playing/chatting 24/7 and you can't just sit and chill, afk or make skins, we might not be a great match.
-
-  no response does not mean i am ignoring u, i am busy irl!!
-
-  i will c+h people who allow it, i dont like my pony sitting alone so often.
+alot of people like to think ponytown defines my life? it does not. i have a whole life outside of this game, IRL friends, other online friends, and you will never know who I am as a person just from how I decorate my pixel pony on a game/how I text.
   
 **ANY fandom can interact with me, but I will NOT play/watch the following:**
 dandys world, poppy playtime,
