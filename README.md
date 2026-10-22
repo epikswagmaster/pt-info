@@ -17,10 +17,6 @@ Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 <p align="center"> BYF
   
 alot of people like to think ponytown defines my life? it does not. i have a whole life outside of this game, IRL friends, other online friends, and you will never know who I am as a person just from how I decorate my pixel pony on a game/how I text.
-  
-**ANY fandom can interact with me, but I will NOT play/watch the following:**
-dandys world, poppy playtime,
-lesbian space princess
 
 <p align="Center"> interests
 
