@@ -13,7 +13,7 @@ my pt friends are aged 16-20! below/above this age range I will not willingly in
 
 Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
-i seriously do not want to talk to anyone who decorates their profile with mental illnesses, or lists them to seem more interesting/important. for example "*insert mental illness* core", "PTSD puppy", or just a huge list of self-diagnosed disorders. you for sure have no idea what it's actually like to deal with these things. we dont decorate our profiles with this shit.
+i seriously do not want to talk to anyone who decorates their profile with mental illnesses, or lists them to seem more interesting/important. for example "*insert mental illness* core", "PTSD puppy", or just a huge list of self-diagnosed disorders. you for sure have no idea what it's actually like to deal with these things. we typically dont decorate our profiles with this shit while actively suffering.
 
 <p align="Center"> interests
 
