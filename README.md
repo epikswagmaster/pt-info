@@ -15,6 +15,8 @@ Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
 i seriously do not want to talk to anyone who decorates their profile with mental illnesses, or lists them to seem more interesting/important. for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders. you for sure have no idea what it's actually like to deal with these things.
 
+also if your dni includes "straight people", "cis people"... coming from an obviously not straight person, that's weird as hell. the gays dont wanna talk to ya either fam.
+
 <p align="Center"> interests
 
 - AVATAR (james cameron) especially fire and ash. 
