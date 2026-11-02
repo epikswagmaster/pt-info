@@ -1,22 +1,19 @@
-# pt-info
+
 
 im usually offtab and whisper to interact! (w2i)
-i play alot during halloween / winter seasons and often disappear during summer (sometimes im offline for years) :']
 
-im a shy person, i rarely speak or interact first besides sometimes sitting with ppl
+im a shy person, i rarely speak or interact first besides sometimes sitting with ppl or complimenting cool skins
 
-i am not turkish, but my pt friends are. i only know a few phrases
+i am not turkish, but a few of my pt friends are. i only know a few phrases to get by with small talk.
 
-my pt friends are aged 16-21! below/above this age range I will not willingly interact with
+my pt friends are aged 16-20! below/above this age range I will not willingly interact with (unless your birthday is earlier in the year making you 21)
 
 
-<p align="center"> more srs
+<p align="center"> more srs, possible DNI
 
 Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
-<p align="center"> BYF
-  
-alot of people like to think ponytown defines my life? it does not. i have a whole life outside of this game, IRL friends, other online friends, and you will never know who I am as a person just from how I decorate my pixel pony on a game/how I text.
+i seriously do not want to talk to anyone who decorates their profile with mental illnesses, or lists them to seem more interesting/important. for example "*insert mental illness* core", "PTSD puppy", or just a huge list of self-diagnosed disorders. you for sure have no idea what it's actually like to deal with these things. we dont decorate our profiles with this shit.
 
 <p align="Center"> interests
 
