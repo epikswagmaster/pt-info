@@ -18,8 +18,6 @@ i seriously do not want to talk to anyone who decorates their profile with menta
 
 also if your dni includes "straight people", "cis people"... us gays dont wanna talk to you either.
 
-if you have to hide me because of this section, it lets us know loud and clear that you either fake mental illnesses, or you fail to include people who are different like you SO claim to do.
-
 <p align="Center"> interests
 
 - AVATAR (james cameron) especially fire and ash. 
