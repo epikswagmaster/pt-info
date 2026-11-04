@@ -11,12 +11,13 @@ my pt friends are aged 16-20! below/above this age range I will not willingly in
 
 <p align="center"> more srs, possible DNI
 
-Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
+Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable
 
-i seriously do not want to talk to anyone who decorates their profile with mental illnesses, or lists them to seem more interesting. for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
+i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
 
-also if your dni includes "straight people", "cis people"... that's weird. besides, some trans people identify as straight
-because they're only into the opposite gender.
+also if your dni includes "straight people", "cis people"... that's weird.
+
+if you have to hide me because of this section, it lets us know loud and clear that you either fake mental illnesses, or you fail to include different people like you claim to do.
 
 <p align="Center"> interests
 
