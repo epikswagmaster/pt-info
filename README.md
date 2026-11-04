@@ -8,7 +8,7 @@ i am not turkish, though pt friends are. i only know a few phrases to get by wit
 
 my pt friends are aged 16-20! below/above this age range I will not willingly interact with
 
-i mainly only hide people who copy my skins or take huge inspo without asking, or people who hid me in the first place (since i really dont do anything lmao.)
+i mainly only hide people who copy my skins or take huge inspo without asking, or people who hid me in the first place (since i really dont do anything)
 
 <p align="center"> more srs, possible DNI
 
