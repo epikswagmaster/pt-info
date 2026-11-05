@@ -15,8 +15,6 @@ i mainly only hide people who:
 
 <p align="center"> more srs, possible DNI
 
-(some of you are going to hide me after reading this and that will tell me EVERYTHING I need to know.)
-
 - Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
 - i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
