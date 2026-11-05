@@ -15,11 +15,13 @@ i mainly only hide people who:
 
 <p align="center"> more srs, possible DNI
 
-Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable. (i don't bother hiding regular protree users, they usually end up hiding me after reading this because they always want to be the victim lmao.)
+(some of you are going to hide me after reading this and that will tell me EVERYTHING I need to know.)
 
-i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
+- Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
-also if your dni includes "straight people", "cis people"... us gays dont wanna talk to you either.
+- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
+
+- also if your dni includes "straight people", "cis people"... us gays dont wanna talk to you either.
 
 <p align="Center"> interests
 
