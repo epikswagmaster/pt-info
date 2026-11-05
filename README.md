@@ -10,12 +10,12 @@ my friends are aged 16-20! below/above this age range I will not willingly inter
 
 i mainly only hide people who:
 - copy my skins or take huge inspo without asking
--  people who sit as an incest ship at the protree, as this is ALWAYS done for attention/drama. (i don't bother hiding regular protree users, they usually end up hiding me after reading this because they can't handle the fact that they make people uncomfortable LMAO.)
+-  people who sit as an incest ship at the protree, as this is ALWAYS done for attention/drama.
 -  if you have an attitude in ANY way toward me or my friends.
 
 <p align="center"> more srs, possible DNI
 
-Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable
+Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable. (i don't bother hiding regular protree users, they usually end up hiding me after reading this because they always have to pretend WE'RE violating them by being uncomfortable LMAO.)
 
 i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
 
