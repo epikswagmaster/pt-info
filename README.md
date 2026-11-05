@@ -10,7 +10,6 @@ my friends are aged 16-20! below/above this age range I will not willingly inter
 
 i mainly only hide people who:
 - copy my skins or take huge inspo without asking
--  people who sit as an incest ship at the protree, as this is ALWAYS done for attention/drama.
 -  if you have an attitude in ANY way toward me or my friends.
 
 <p align="center"> more srs, possible DNI
