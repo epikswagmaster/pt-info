@@ -2,13 +2,16 @@
 
 im usually offtab and whisper to interact! (w2i)
 
-im a shy person, i rarely speak or interact first besides sometimes sitting with ppl
+extremely shy person, i rarely speak or interact first besides sometimes sitting with ppl
 
-i am not turkish, though pt friends are. i only know a few phrases to get by with small talk.
+i am not turkish, i learn sentences/phrases from my pt friends
 
-my pt friends are aged 16-20! below/above this age range I will not willingly interact with
+my friends are aged 16-20! below/above this age range I will not willingly interact with
 
-i mainly only hide people who copy my skins or take huge inspo without asking, or people who hid me in the first place (since i really dont do anything)
+i mainly only hide people who:
+- copy my skins or take huge inspo without asking
+-  people who sit as an incest ship at the protree, as this is ALWAYS done for attention/drama.
+-  if you have an attitude in ANY way toward me or my friends.
 
 <p align="center"> more srs, possible DNI
 
