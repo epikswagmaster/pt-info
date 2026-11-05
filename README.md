@@ -16,9 +16,7 @@ i mainly only hide people who:
 
 - Whatever the "proship" tree may be i am NOT apart of. it makes me uncomfortable.
 
-- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "PTSD puppy", "DID systems" of just characters you like, or just a huge list of self-diagnosed disorders.
-
-- also if your dni includes "straight people", "cis people"... us gays dont wanna talk to you either.
+- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things just because your emotions are confusing currently. this is a mockery of those who actually suffer.
 
 <p align="Center"> interests
 
