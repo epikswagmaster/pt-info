@@ -2,7 +2,7 @@
 
 im usually offtab and whisper to interact! (w2i)
 
-extremely shy person, i don't speak or interact first, I also keep most aspects of my life private. (anyone is welcome to interact! but you might have to step out of your zone if you really want to be my friend. (ask questions, come up to me first) until I'm comfortable.
+extremely shy person, i don't speak or interact first, I also keep most aspects of my life private. (anyone is welcome to interact! but you might have to step out of your zone if you really want to be my friend. (asking questions, coming up to me first) until I'm comfortable.)
 
 i am not turkish, i learn sentences/phrases from my pt friends
 
