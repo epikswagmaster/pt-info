@@ -16,7 +16,7 @@ i mainly only hide people who:
 
 - Whatever the "proship" tree may be i am NOT apart of.
 - i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. all of these are a mockery of those who actually suffer, and you can describe your emotions without making things up as you go.
-- for some reason americans pretend to speak another language/to be another nationality, these are easy for me to spot and i typically dont interact. this is a form of compulsive lying.
+- for some reason many americans pretend to speak another language/to be another nationality besides English, these people are easy for me to spot, and i dont interact with liars.
 
 <p align="Center"> interests
 
