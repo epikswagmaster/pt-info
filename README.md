@@ -11,6 +11,7 @@ my friends are aged 16-20! below/above this age range I will not willingly inter
 i mainly only hide people who:
 - copy my skins or take huge inspo without asking
 -  have an attitude in any negative way
+-  for 15 minutes if you are blocking something/someone I need to click on, or your advertisements are blocking things
 
 <p align="center"> more srs, possible DNI
 
