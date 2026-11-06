@@ -2,9 +2,9 @@
 
 im usually offtab and whisper to interact! (w2i)
 
-extremely shy person, i don't speak or interact first, I also keep most aspects of my life private. (anyone is welcome to interact! but you might have to step out of your zone if you really want to be my friend. (asking questions, coming up to me first) until I'm comfortable.)
+extremely shy person, i don't speak or interact first, I also keep most aspects of my life private. (this doesn't mean you can't interact!) cudcomf, and I like sitting with people :]
 
-i am not turkish, i learn sentences/phrases from my pt friends
+i am not turkish, my friends are. i can't follow a turkish conversation for long.
 
 my friends are aged 16-20! below/above this age range I will not willingly interact with
 
