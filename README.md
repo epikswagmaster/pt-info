@@ -16,7 +16,7 @@ i mainly only hide people who:
 
 - Whatever the "proship" tree may be i am NOT apart of.
 - i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. all of these are a mockery of those who actually suffer.
-- you allow/want people MUCH older/younger than you to be your friend (e.g youre 15 and talk to people aged 18-25)
+- if you allow/want people MUCH older/younger than you to be your friend (e.g youre 15 and talk to people aged 18-25).
   casual online relationships with an adult is a lot different from a casual friendship with a known, trusted adult IRL. online grooming happens without the victim even knowing.
 
 <p align="Center"> interests
