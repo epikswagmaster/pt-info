@@ -15,9 +15,9 @@ i mainly only hide people who:
 
 <p align="center"> more srs, possible DNI
 
-- Whatever the "proship" tree may be i am NOT apart of. the people who sit there only do it for the attention,  most real proshippers keep it private, ESPECIALLY in a safe server full of children.
-
-- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. this is a mockery of those who actually suffer.
+- Whatever the "proship" tree may be i am NOT apart of.
+- 
+- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. this is a mockery of those who actually suffer, and you somehow still want to be the victim.
 
 <p align="Center"> interests
 
