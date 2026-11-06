@@ -2,7 +2,7 @@
 
 im usually offtab and whisper to interact! (w2i)
 
-extremely shy person, i don't speak or interact first. you're going to have to step out of your comfort zone if you really want to be my friend. (because I cannot. I am diagnosed for this.)
+extremely shy person, i don't speak or interact first. you're going to have to step out of your comfort zone if you really want to be my friend. (because I cannot, and am diagnosed for this.)
 
 i am not turkish, i learn sentences/phrases from my pt friends
 
