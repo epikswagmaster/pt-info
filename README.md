@@ -2,7 +2,7 @@
 
 im usually offtab and whisper to interact! (w2i)
 
-extremely shy person, i don't speak or interact first, I also keep most aspects of my life private. (this doesn't mean you can't interact!) cudcomf, and I like sitting with people :]
+extremely shy person, i don't speak or interact first, besides sometimes sitting with ppl. (this doesn't mean you can't interact!) cudcomf, and I like sitting with people :]
 
 i am not turkish, my friends are. i can't follow a turkish conversation for long.
 
