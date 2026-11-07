@@ -15,7 +15,7 @@ i mainly only hide people who:
 <p align="center"> possible DNI
 
 - Whatever the "proship" tree may be i am NOT apart of.
-- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. all of these are a mockery of those who actually suffer, and you can explain your behavior without hiding it behind an undiagnosed disorder.
+- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. all of these are a mockery of those who actually suffer, you should use "I **might** have *illness*" if undiagnosed and suspecting.
 
 <p align="Center"> interests
 
