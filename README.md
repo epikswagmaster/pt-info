@@ -1,12 +1,11 @@
 <p align="center"> boundaries 
 
-im usually offtab and whisper to interact! (w2i)
+- usually offtab and whisper to interact! (w2i)
 
-extremely shy person when sober, i don't speak or interact first unless im high, (besides sometimes sitting with ppl.) this doesn't mean you can't interact! cudcomf also :]
+- extremely shy person, i don't speak or interact first unless im high, (besides sometimes sitting with ppl.) this doesn't mean you can't interact! cudcomf also :]
 
-i am not turkish, my friends are. i can't follow a turkish conversation for long.
+- i am not turkish, my friends are. i can't follow a turkish conversation for long.
 
-my friends are aged 16-20! below/above this age range I will not willingly interact with
 
 i mainly only hide people who:
 - copy my skins or take huge inspo without asking
@@ -15,8 +14,8 @@ i mainly only hide people who:
 <p align="center"> possible DNI
 
 - Whatever the "proship" tree may be i am NOT apart of.
-- i seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently. all of these are a mockery of those who actually suffer, you should use "I **might** have *illness*" if undiagnosed and suspecting.
-
+  - seriously do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) just because your emotions are confusing currently.
+    
 <p align="Center"> interests
 
 - AVATAR (james cameron) especially fire and ash. 
