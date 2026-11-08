@@ -22,4 +22,4 @@ i mainly only hide people who:
 - AVATAR (james cameron) especially fire and ash. 
 if you like titanic or the abyss, that was also made by James Cameron.
 - character design/animal people, warrior cats, animal jam, transformice, horses, (i ride mine every now and then) opossums, mice and bats, ghost eyes (very niche webcomic), and creatures of sonaria (coolest game on Roblox, please try it if your devices can handle it LMAO)
-- MUSIC especially old rock music, some bands I like are KMFDM, and one, tame impala, linkin park, limp bizkit, stone temple pilots, chevelle, Alice in chains, highly suspect, guns n roses, megadeth/metallica, motley crue, miss construction, caustic, nirvana, pixies, massive attack, portishead and radiohead. im capable of seeing the creativity in many genres
+- MUSIC especially old rock music, some bands I like are KMFDM, and one, tame impala, she wants revenge, linkin park, limp bizkit, stone temple pilots, chevelle, Alice in chains, highly suspect, guns n roses, megadeth/metallica, motley crue, miss construction, caustic, nirvana, pixies, massive attack, portishead and radiohead. im capable of seeing the creativity in many genres
