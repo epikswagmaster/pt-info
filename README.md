@@ -20,5 +20,5 @@ i mainly only hide people who:
 
 - AVATAR (james cameron) same creator as terrifier I and II, the abyss, and titanic
 - character design | animation | warrior cats | animal jam | transformice | ghost eyes | creatures of sonaria | ena bbq 
-- MUSIC!!!!!!!!!!!!, some I like:
--  KMFDM | and one | tame impala | she wants revenge | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | radiohead
+- MUSIC!!!!!!!!!!!!, music list:
+-  KMFDM | and one | tame impala | she wants revenge | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| not doing blinkies at the moment
