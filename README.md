@@ -18,8 +18,7 @@ i mainly only hide people who:
     
 <p align="Center"> interests
 
-- AVATAR (james cameron) especially fire and ash. 
-if you like titanic or the abyss, that was also made by James Cameron.
+- AVATAR (james cameron) same creator as terrifier I and II, the abyss, and titanic
 - character design | animation | warrior cats | animal jam | transformice | ghost eyes | creatures of sonaria | ena bbq 
 - MUSIC!!!!!!!!!!!!, some I like:
 -  KMFDM | and one | tame impala | she wants revenge | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | radiohead
