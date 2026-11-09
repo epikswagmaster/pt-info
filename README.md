@@ -22,5 +22,3 @@ i mainly only hide people who:
 if you like titanic or the abyss, that was also made by James Cameron.
 - character design/animal people, warrior cats, animal jam, transformice, horses, (i ride mine every now and then) opossums, mice and bats, GHOST EYES and CREATURES OF SONARIA!!!
 - MUSIC!!!!!!!!!!!!, some I like are KMFDM, and one, tame impala, she wants revenge, linkin park, limp bizkit, stone temple pilots, chevelle, Alice in chains, highly suspect, guns n roses, megadeth/metallica, motley crue, miss construction, caustic, nirvana, pixies, massive attack, portishead and radiohead. im capable of seeing the creativity in many genres
-
-(im kinda mad that everyone now groups kmfdm/and one/she wants revenge ALL together because i spent so many years pairing these bands together to create my own specific taste in music 💔)
