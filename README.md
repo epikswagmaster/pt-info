@@ -20,6 +20,6 @@ i mainly only hide people who:
 
 - AVATAR (james cameron) same creator as terrifier I and II, the abyss, and titanic
 - character design | animation | warrior cats | animal jam | transformice | ghost eyes | creatures of sonaria | ena bbq
-- I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it.
+- I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
