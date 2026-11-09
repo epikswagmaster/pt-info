@@ -4,7 +4,7 @@
 
 - extremely shy person, i don't speak or Interact first (besides sometimes sitting with ppl.) this doesn't mean you can't interact! cudcomf also :]
 
-- i am not turkish, some my friends are. i can't follow a turkish conversation for long.
+- i am not turkish, some of my friends are, and they are my friends because they know english to some extent
 
 
 i mainly only hide people who:
