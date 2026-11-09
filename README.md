@@ -2,7 +2,7 @@
 
 - usually offtab, whisper to interact (w2i)
 
-- extremely shy person, i don't often speak or interact first besides sometimes sitting with ppl. this doesn't mean you can't interact! there are many circumstances where I can be chatty too
+- extremely shy person, this doesn't mean you can't interact! there are many circumstances where I can be chatty too
 
 - i am not turkish, some of my friends are. I only know a few phrases
 
