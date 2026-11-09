@@ -2,7 +2,7 @@
 
 - usually offtab and whisper to interact! (w2i)
 
-- extremely shy person, i don't speak or interact first unless im high, (besides sometimes sitting with ppl.) this doesn't mean you can't interact! cudcomf also :]
+- extremely shy person, i don't speak or interact first unless im legit high, (besides sometimes sitting with ppl.) this doesn't mean you can't interact! cudcomf also :]
 
 - i am not turkish, my friends are. i can't follow a turkish conversation for long.
 
