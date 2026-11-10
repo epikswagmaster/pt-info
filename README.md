@@ -27,5 +27,4 @@ i mainly only hide people who:
 
 <p align="center"> other
   
-- I don't drink blood! I buy alternatives like beet juice
 - I'm open to art trades, or skin trades of our ocs :D I'm still finding my exact skin making style so just let me know if u like what u see
