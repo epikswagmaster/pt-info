@@ -15,8 +15,8 @@ i mainly only hide people who:
 
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood.
-  - will not interact with people who try to start drama in that SAME corner of the bakery every day or the protree... some ppl have hidden me JUST because I DIDNT argue with them or give them that attention
-    
+  - will not interact with people who try to start drama in that SAME corner of the bakery every day or the protree...
+  - 
 <p align="Center"> interests
 
 - AVATAR (james cameron) same creator as terrifier I and II, the abyss, and titanic
