@@ -24,3 +24,8 @@ i mainly only hide people who:
 - I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
+
+<p align="center"> other
+  
+- I don't drink blood! I buy alternatives like beet juice
+- I'm open to art trades, or skin trades of our ocs :D I'm still finding my exact skin making style so just let me know if u like what u see
