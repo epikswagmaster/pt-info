@@ -22,7 +22,7 @@
 - I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
--  im a huge coralena shipper (ena dream BBQ) I also ship neyrang (avatar) varang lowkirk just wants neytiri and her thunder
+-  im a huge coralena shipper (ena dream BBQ) I also ship neyrang (avatar) varang lowkirk just wants an equal (neytiri) and her thunder
 
 <p align="center"> other
   
