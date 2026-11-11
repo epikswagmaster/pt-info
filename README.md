@@ -22,8 +22,4 @@
 - I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
--  im a huge coralena shipper (ena dream BBQ) I also ship neyrang (avatar) though we don't care much about ships in avatar because so much more important things go down lmao
-
-<p align="center"> other
-  
-- I'm open to art trades, or skin trades of our ocs :D I'm still finding my exact skin making style so just let me know if u like what u see
+-  im a huge coralena shipper (ena dream BBQ) I also ship neyrang (avatar) but shipping isn't super big in our fandom because there are so many more important aspects of the movies
