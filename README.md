@@ -13,7 +13,7 @@
 
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood.
-  - dni if you think people need to give you a reason behind their skin. (for example, a meme skin with a trans flag added for fun). the person doesnt have to tell you they're trans, or why they made it. it's NONE of your business. some people try to get offended by skins like these, and use their "discomfort" to pry into people and make them give a reason for their skin, which isn't okay.
+  - dni if you think people need to give you a reason behind their skin. (for examle the Lord verity skin with a trans flag added for fun). the person doesnt have to tell you they're trans, or why they made it. it's NONE of your business. actual trans people do not get offended by skins like these or try to pry into the details of someone to figure out why they have a trans flag on their skin. that's weird.
     
 <p align="Center"> interests
 
