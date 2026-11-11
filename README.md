@@ -22,4 +22,4 @@
 - I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
--  im a huge coralena shipper (ena dream BBQ) I also ship neyrang (avatar) but shipping isn't super big in our fandom because there are so many more important aspects of the movies
+-  I love my yuri! if I'm ena then one can sit with me as coral glasses, if im varang then one can sit with me as neytiri
