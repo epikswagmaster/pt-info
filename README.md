@@ -2,21 +2,19 @@
 
 - usually offtab, whisper to interact (w2i)
 
-- extremely shy person, this doesn't mean you can't interact! though you'll have to do it first 
+- extremely shy person, this doesn't mean you can't interact! cudcomf also
 
-- i am not turkish, some of my friends are. I only know a few phrases
+- i am not turkish, some of my friends are
 
 
-i mainly only hide people who:
-- copy my skins or take huge inspo without asking
--  for 15 minutes if you are blocking something/someone I need to click on or advertisements are blocking things
+- i mainly only hide people for 15 minutes if they're in my way, or permanently if they copied my skin / took inspo without asking
 
 <p align="center"> possible DNI
 
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood.
-  - will not interact with people who try to start drama in that SAME corner of the bakery every day or the protree...
-  - 
+  - dni if you think people need to give you a reason behind their skin. (for example, a meme skin with a trans flag added for fun). the person doesnt have to tell you they're trans, or why they made it. it's NONE of your business. some people try to get offended by skins like these, and use their "discomfort" to pry into people.
+
 <p align="Center"> interests
 
 - AVATAR (james cameron) same creator as terrifier I and II, the abyss, and titanic
