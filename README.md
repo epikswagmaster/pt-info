@@ -21,4 +21,4 @@
 - I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it. my assigned character is Dave though
 - MUSIC!!!!!!!!!!!!, music list:
 -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
-- i find dandys world/poppy playtime/lesbian space princess fandoms extremely annoying. the cosplays are EVERYWHERE I go, and just not my type of show/games. (Im not trying to be rude btw! most other people are fed up with this as well)
+- i find dandys world/poppy playtime/lesbian space princess fandoms extremely annoying. the cosplays are EVERYWHERE I go, and just not my type of show/games. (Im not trying to be insulting, most other people are fed up with these fandoms too. :'0)
