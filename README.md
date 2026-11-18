@@ -20,7 +20,11 @@
 
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood.
-  - <p align="Center"> **you might be unpleasant to interact with because...**
+
+ <p align="Center"> 
+     
+**you might be unpleasant to interact with because...**
+    
   - someone you dont know cracks a joke, and instead of laughing and moving on or simply ignoring them, you act like they've said something terribly weird.
   - you expect other REAL people with feelings to only cater to YOURS because you're "anxiety depression audhd DID and BPD" etc.
   - you stereotype, objectify, or assume who someone may be just because of the skin they're playing as.
