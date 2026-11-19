@@ -13,9 +13,7 @@
 - music list:
  -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
  -  <p align="center"> NOT interested in:
-  - dandys world/poppy playtime/lesbian space princess. these fandoms are everywhere, and get extremely annoying for the rest of us.
-
-- OTHER indie projects with some actual soul put into them (such as TADC or CAV) are perfectly fine!
+  - dandys world/poppy playtime/lesbian space princess. these fandoms are everywhere, and get extremely annoying for the rest of us. im only okay with NON-slop indie projects with an actual story, such as TADC or CAV.
 
 - <p align="center"> possible DNI
 
