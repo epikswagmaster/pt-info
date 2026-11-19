@@ -24,7 +24,7 @@
   
  <p align="Center"> 
      
-**you might be unpleasant to interact with because...**
+**you might be sitting alone at docks/bakery all the time because...**
     
   - you are dry or rude to people you dont know because you "dont know them." News flash, you dont know ANYONE on the Internet! 🙀
   - you expect other REAL people with feelings to only cater to YOURS because you're "anxiety depression audhd DID and BPD" etc.
