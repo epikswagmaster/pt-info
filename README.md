@@ -4,7 +4,7 @@
 
 - extremely shy person, this doesn't mean you can't interact! cudcomf also
 
-- i can only fluently speak english and danish, i use a translator for everyone else
+- i can only fluently speak english and danish, (with that, obviously i know some Norwegian and swedish.) i use a translator for everyone else
 
     
 <p align="Center"> interests
