@@ -25,6 +25,6 @@
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood or characters.
  - if youre 16/under and in the hazbin hotel/helluva boss fandom
    
-  - I don't have kins or anything but I tend to get really annoyed when someone completely different from me claims a character that's similar to ME. (e.g vinyl scratch, flutterbat, original ENA, dave strider or davepeta.)
+  - I don't have kins or anything but I tend to get really annoyed when someone completely different from me claims a character that's similar to ME. (e.g vinyl scratch, flutterbat, dave strider or davepeta)
  <p align="Center"> 
     
