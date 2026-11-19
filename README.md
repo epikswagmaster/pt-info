@@ -17,8 +17,8 @@
        
   - dandys world/poppy playtime/lesbian space princess. these fandoms are everywhere, and get extremely annoying for the rest of us.
   - call of duty. even though i sit around the fandom area, i dont care for it. its just a quiet and spacious area when I need it.
-- discussing lgbtq+. not because I am homophobic, but because my sexual preferences and identity are not your concern.
-
+- eddsword or phighting. just don't care.
+  
   <p align="center"> possible DNI
 
 - Whatever the "proship" tree may be i am NOT apart of.
