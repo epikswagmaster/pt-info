@@ -21,7 +21,7 @@
 
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood or characters.
-- if you're under the age of 17 and in the hazbin hotel/helluva boss fandom, or honestly any adult cartoon.
+- if you're under the age of 18 and in the hazbin hotel/helluva boss fandom, or honestly any adult cartoon not meant for you.
  <p align="Center"> 
      
 **you might be unpleasant to interact with because...**
