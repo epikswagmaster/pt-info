@@ -16,6 +16,7 @@
    <p align="center"> NOT interested in:
        
   - dandys world/poppy playtime/lesbian space princess. these fandoms are everywhere, and get extremely annoying for the rest of us. im only okay with NON-slop indie projects with a meaningful story, such as TADC or CAV.
+  - call of duty. even though i sit around the fandom area, i dont care for it. its just a quiet and spacious area when I need it.
 
 - <p align="center"> possible DNI
 
