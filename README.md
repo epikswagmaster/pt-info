@@ -2,7 +2,7 @@
 
 - usually offtab, whisper to interact (w2i)
 
-- extremely shy person, this doesn't mean you can't interact! cudcomf also
+- extremely shy person, this doesn't mean you can't interact. cudcomf also
 
 - i can only fluently speak english and danish, (with that, obviously i know some Norwegian and swedish.) i use a translator for everyone else
 
@@ -15,9 +15,9 @@
  
    <p align="center"> NOT interested in:
        
-  - dandys world/poppy playtime/lesbian space princess. these fandoms are everywhere, and get extremely annoying for the rest of us.
+  - dandys world/poppy playtime/lesbian space princess.
   - call of duty. even though i sit around the fandom area, i dont care for it. its just a quiet and spacious area when I need it.
-- eddsword or phighting. just don't care.
+- eddsword or phighting.
   
   <p align="center"> possible DNI
 
