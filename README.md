@@ -12,12 +12,6 @@
 - AVATAR (james cameron) | character design | animation | warrior cats | animal jam | transformice | ghost eyes | creatures of sonaria | ena bbq | I do Homestuck cosplays with my irls, but I'm not super in the fandom or have read much of it | MUSIC!!!!!!!!!!!!, And One is a comfort band to me and I have skins based off of their albums, I have OCs based off of the music!
 - music list:
  -  KMFDM | and one | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | motley crue | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | breaking benjamin | skillet ||| (not doing blinkies at the moment)
- 
-   <p align="center"> NOT interested in:
-       
-  - dandys world/poppy playtime/lesbian space princess.
-  - call of duty. even though i sit around the fandom area, i dont care for it. its just a quiet and spacious area when I need it.
-- eddsword or phighting.
   
   <p align="center"> possible DNI
 
