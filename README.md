@@ -18,7 +18,7 @@
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood or characters.
  - if youre 16/under and in the hazbin hotel/helluva boss fandom
- - if you state that you're rude to others on your profile(s) instead of just using the hide/block features. doesn't matter if you "have already warned people" that you're mean. if you dislike someone, you hide the person and leave them alone.
+ - if you state that you're rude to others on your profile(s) instead of just using the hide/block features. doesn't matter if you "have already warned people" that you're mean. if you dislike someone. Like, if you wanna say someone stinks, shut your mouth and the smell will disappear.
    
  <p align="Center"> 
     
