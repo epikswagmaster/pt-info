@@ -2,9 +2,9 @@
 
 - usually offtab, whisper to interact (w2i)
 
-- extremely shy person, this doesn't mean you can't interact. cudcomf also
+  - very shy person, I rarely speak unless a topic interests me enough
 
-- i can only fluently speak english and danish, (with that, obviously i know some Norwegian and swedish.) i use a translator for everyone else
+- i can only fluently speak english and danish, i use a translator for everyone else
 
     
 <p align="Center"> interests
@@ -18,6 +18,7 @@
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or generally making up things (like alters) based off of mood or characters.
  - if youre 16/under and in the hazbin hotel/helluva boss fandom
+ - if you state that you're rude to others on your profile(s) instead of just using the hide/block features. doesn't matter if you "have already warned people" that you're mean. if you dislike someone, you hide the person. leave people alone!
    
  <p align="Center"> 
     
