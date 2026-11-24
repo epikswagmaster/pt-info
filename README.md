@@ -2,11 +2,13 @@
 
 - usually offtab, whisper to interact (w2i)
 
+- feel free to sit with me or c+h any time, I enjoy the company
+
   - very shy person, I rarely speak unless a topic interests me enough
 
 - i can only fluently speak english and danish, i use a translator for everyone else
 
-
+- if you copy my skins/characters you will be blacklisted publicly for others to watch out for, and permanently hidden! feel free to ask for tips on making skins instead.
     
 <p align="Center"> interests
 
