@@ -14,7 +14,7 @@
 
 - AVATAR (james cameron) | character design | animation | warrior cats | animal jam | transformice | ghost eyes | creatures of sonaria | ena bbq
 - music list:
- -  and one | kmfdm | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | ghost ||| (not doing blinkies at the moment)
+ -  and one | kmfdm | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | ghost ||| (I'm not coding all those damn blinkies here)
 
    
   
