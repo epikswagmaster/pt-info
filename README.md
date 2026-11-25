@@ -23,7 +23,7 @@
     why? because this is lying and romanticizing disorders.
     - do not mention self harm or suicidal thoughts to me EVER. if you speak about ending it or hurting yourself, i will disengage fully. I will not feel bad for you or comfort you.
     
-  some of you might think I'm mean for this; be glad you don't actually have to deal with these constant unwanted thoughts.
+  if you might think I'm mean for this, be glad you don't actually have to deal with these constant unwanted thoughts.
     
  <p align="Center"> 
     
