@@ -19,7 +19,7 @@
   
   <p align="center"> possible DNI
 
-- Whatever the "proship" tree may be i am NOT apart of. those people are predatory. dni if you publicly ship things that would be illegal in real life, or if you're 18+ and crushing on a teen/child character. 
+- Whatever the "proship" tree may be i am NOT apart of. this doesnt make me "anti" either. i just dont support predatory ships, incest, or noncon, which most proshippers do support or believe should be uncensored and available to everyone. yuck!
 
 - do not want to talk to anyone who decorates their profile with mental illnesses, "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or saying that you were professionally diagnosed with something you were not.
     why? because this is lying and romanticizing disorders.
