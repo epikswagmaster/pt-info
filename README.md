@@ -23,6 +23,7 @@
 - Whatever the "proship" tree may be i am NOT apart of.
   - do not want to talk to anyone who decorates their profile with mental illnesses, for example "*insert mental illness* core", "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or convincing yourself and others that you were professionally diagnosed with something you were not.
     why? because this is lying and romanticizing disorders.
+    - do not mention self harm or suicidal thoughts to me EVER. if you speak about suicide i will disengage fully. if you constantly talk/brag about selfharm or "your scars" you will be blocked.
     
  <p align="Center"> 
     
