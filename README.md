@@ -19,7 +19,7 @@
   <p align="center"> possible DNI
 
 - Whatever the "proship" tree may be i am NOT apart of.
-  - do not want to talk to anyone who decorates their profile with mental illnesses, "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or convincing yourself and others that you were professionally diagnosed with something you were not.
+  - do not want to talk to anyone who decorates their profile with mental illnesses, "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or saying that you were professionally diagnosed with something you were not.
     why? because this is lying and romanticizing disorders.
     - do not mention self harm or suicidal thoughts to me EVER. if you speak about ending it or hurting yourself, i will disengage fully. I will not feel bad for you or comfort you.
     
