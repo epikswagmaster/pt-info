@@ -22,6 +22,7 @@
   - do not want to talk to anyone who decorates their profile with mental illnesses, "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or saying that you were professionally diagnosed with something you were not.
     why? because this is lying and romanticizing disorders.
     - do not mention self harm or suicidal thoughts to me EVER. if you speak about ending it or hurting yourself, i will disengage fully. I will not feel bad for you or comfort you for bringing up a triggering topic to me.
+ - AND ONE is a comfort band for me! I genuinely feel that no one else has the same connection to this band as me, so "#1 fans" etc are who I tend to stay away from.
     
  <p align="Center"> 
     
