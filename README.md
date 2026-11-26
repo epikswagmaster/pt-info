@@ -6,7 +6,7 @@
 
   - very shy person, I rarely speak unless a topic interests me enough
 
-- if you copy my skins/characters you will be blacklisted publicly for others to watch out for, and permanently hidden! feel free to ask for tips on making skins instead.
+- if you copy my skins/characters you will be blacklisted + permanently hidden! feel free to ask for tips on making skins instead.
     
 <p align="Center"> interests
 
