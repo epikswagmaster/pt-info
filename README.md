@@ -15,16 +15,4 @@
 - music list:
  -  and one | kmfdm | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | ghost ||| (I'm not coding all those damn blinkies here)
 
-   
-  
-  <p align="center"> possible DNI
-
-- Whatever the "proship" tree may be i am NOT apart of. this doesnt make me "anti" either. i just dont support predatory ships, incest, or noncon. most proshippers DO support it / believe it should be uncensored and available to everyone, OR they believe it doesn't affect the viewers (aka reality)... yuck!
-
-- do not want to talk to anyone who decorates their profile with mental illnesses, "DID systems" of just characters you like, a huge list of self-diagnosed disorders, or saying that you were professionally diagnosed with something you were not.
-    why? because this is lying and romanticizing disorders.
-  
-  - do not mention self harm or suicidal thoughts to me EVER. if you speak about ending it or hurting yourself, i will disengage fully.
-    
- <p align="Center"> 
-    
+and one is my comfort band and i dont usually interact with "#1 fans" ect because i dont believe anyone else has the same connection to this band as me,, however i dont care if you want to claim kmfdm, or any other band listed
