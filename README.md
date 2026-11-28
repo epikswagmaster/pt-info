@@ -15,4 +15,4 @@
 - music list:
  -  and one | kmfdm | tame impala | mystery skulls | she wants revenge | carseat headrest | linkin park | limp bizkit | stone temple pilots | chevelle | Alice in chains | guns n roses | megadeth/metallica | miss construction | caustic | nirvana | pixies | massive attack | portishead | jeff buckley | radiohead | nickelback | seether | ghost ||| (I'm not coding all those damn blinkies here)
 
-and one is my comfort band and i dont usually interact with "#1 fans" ect because i dont believe anyone else has the same connection to this band as me,, however i dont care if you want to claim kmfdm or any other band/fandoms listed whatsoever!
+and one is my comfort band and i dont usually interact with "#1 fans" ect because i dont believe that to be true,, however i dont care if you want to claim kmfdm or any other band/fandoms listed whatsoever!
